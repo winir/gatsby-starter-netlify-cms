@@ -4,7 +4,7 @@ title: About our values and Ideals
 ---
 ### Philosophy
 
-At brew-beans we committed to the phiosophy of the 'fair go' a uniquely ozzzy thing.
+At brew-beans we committed to the philosophy of the 'fair go' a uniquely ozzzy thing. What it means is that everyone is treated fairly and given a fair go.
 
 
 
